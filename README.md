@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Theo
-- 👀 I’m interested in Anime, gaming and all things nerdy
+- 👀 I’m interested in Anime, gaming and all things nerdy more specifically gundam and bey7blade
 - 🌱 I’m currently learning game design
 - 💞️ I’m looking to collaborate on a game
 - 📫 How to reach me at taustin.1.2223@tech4maine.org
